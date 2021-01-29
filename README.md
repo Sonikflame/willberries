@@ -1,5 +1,7 @@
 # willberries - Учебный проект
 
+Учебный проект доступен по адресу [https://sonikflame.github.io/willberries/](https://sonikflame.github.io/willberries/).
+
 
 ## В проекте использовались языки:
 
