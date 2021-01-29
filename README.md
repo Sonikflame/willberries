@@ -14,25 +14,28 @@
 
 
 #### Обо мне:
+
 * Доброго времени суток, меня зовут Андрей, рад приветствовать Вас.
 
 * Я готов предложить Вам услуги начинающего Веб разработчика.
 
 * На данном этапе работаю за отзыв, в свободное от основной работы время.
 
-*WhatsApp:* **+37126103048**
+#### Мои контакты:
 
-*Telegram:* **+37126103048**
+* *WhatsApp:* **+37126103048**
 
-*E-Mail:* **sonikflame@mail.ru**
+* *Telegram:* **+37126103048**
+
+* *E-Mail:* **sonikflame@mail.ru**
 
 
 #### Мои профили на фриланс-биржах:
 
-[Профиль на freelance.ru](https://freelance.ru/Sonikflame)
+* [Профиль на freelance.ru](https://freelance.ru/Sonikflame)
 
-[Профиль на fl.ru](https://www.fl.ru/users/sonikflame1/portfolio/)
+* [Профиль на fl.ru](https://www.fl.ru/users/sonikflame1/portfolio/)
 
-[Профиль на freelancehunt.com](https://freelancehunt.com/freelancer/Sonikflame.html)
+* [Профиль на freelancehunt.com](https://freelancehunt.com/freelancer/Sonikflame.html)
 
-[Профиль на weblancer.net](https://www.weblancer.net/users/Sonikflame/)
+* [Профиль на weblancer.net](https://www.weblancer.net/users/Sonikflame/)
