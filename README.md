@@ -1,4 +1,4 @@
-# Интернет-магазин "Willberries" - Учебный проект
+# Интернет-магазин "Willberries"
 
 Учебный проект доступен по адресу [https://sonikflame.github.io/willberries/](https://sonikflame.github.io/willberries/).
 
